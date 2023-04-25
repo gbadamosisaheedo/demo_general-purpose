@@ -28,3 +28,4 @@ sudo systemctl status jenkins
 sudo su - ec2-user
 echo "echo of jenkins installation
 ==============
+#i am trying to understand branching in Github
