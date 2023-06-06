@@ -48,3 +48,61 @@ KGS Group is an employee-owned equal opportunity company offering an excellent c
 KGS Group welcomes and encourages applications from people with disabilities. Upon request, KGS Group will provide reasonable accommodation for disabilities to support participation of candidates in all aspects of the recruitment process.
 
  
+ 
+ 
+ PDF COMPANY 
+ ACCOUNTING ASSISTANT
+ 
+ 
+ DETAILS OF EMPLOYMENT 
+ 
+ ob Description
+
+Working closely with the finance team lead, initial responsibilities include but are not limited to:
+
+Entering accounts payable invoices
+Entering expense reports
+Charge expenses to the appropriate general ledger accounts
+A/P statement reconciliations
+Resolving and communicating accounts payable issues with vendors
+Pay vendors by established terms
+Reconcile payments to a bank account
+Sales tax filing
+General ledger account reconciliations
+Monthly and year-end working paper schedules
+Assist in the set-up of new USA financial databases
+Filing accounts payable documents
+Various projects as required
+Assist other finance team members as required
+Minimum qualifications:
+
+2 years experience using a computerized accounting system
+Entry-level accounting education
+Solid attention to detail
+Excellent analytical and problem-solving abilities
+Strong organizational skills, ability to prioritize and meet deadlines
+Good communication skills, both written and verbal
+Proficient in Microsoft Office – Word, Excel & Outlook
+Team player
+Flexible and able to adapt to change
+Positive attitude
+Job Type: Full-time
+
+Salary: $48,000.00-$52,000.00 per year
+
+Benefits:
+
+Company events
+Dental care
+Extended health care
+On-site gym
+On-site parking
+Paid time off
+Vision care
+Schedule:
+
+Monday to Friday
+Ability to commute/relocate:
+
+Winnipeg, MB: reliably commute or plan to relocate before starting work (preferred)
+Experience:
