@@ -50,7 +50,7 @@ KGS Group welcomes and encourages applications from people with disabilities. Up
  
  
  
- PDF COMPANY 
+ DPF COMPANY 
  ACCOUNTING ASSISTANT
  
  
